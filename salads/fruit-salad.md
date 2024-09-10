@@ -11,7 +11,7 @@
 - 1 orange, peeled and sectioned
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
-- Fresh mint leaves (optional, for garnish)
+- Fresh mint leaves (optional, for garnish) or rosemary 
 
 
 ## Instructions
